@@ -1,1 +1,5 @@
 # CS519.M11.KHCL
+GIỚI THIỆU BẢN THÂN:
+Họ và tên: Hồ Thịnh _ MSSV: 19522274
+Khoá 2019 (K14)
+CÁC HOẠT ĐỘNG LIÊN QUAN:
